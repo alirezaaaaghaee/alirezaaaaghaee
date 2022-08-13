@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @alirezaaaaghaee
+- 👀 I’m a PhD student in Finance, Bocconi University, Milan. 
+- 📫 How to reach me: alirezaaghaee17@gmail.com
